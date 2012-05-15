@@ -13,10 +13,10 @@ Serves 4
 
 ## Method
 
-Preheat the oven to around 180deg C
-Put the peaches and their liquor into an oven proof dish
-Sprinkle over the brown sugar and cinnamon.
-Bake in the oven for around 20 minutes.
+1. Preheat the oven to around 180deg C
+2. Put the peaches and their liquor into an oven proof dish
+3. Sprinkle over the brown sugar and cinnamon.
+4. Bake in the oven for around 20 minutes.
 
 Serve hot with cream, clotted cream or vanilla ice cream.
 
