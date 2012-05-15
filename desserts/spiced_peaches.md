@@ -7,9 +7,9 @@ Serves 4
 
 ## Ingredients
 
-Tin peach halves in syrup/juice
-2 tbsps dark brown sugar (or to taste)
-1 - 2 tsps cinnamon (or to taste)
+* Tin peach halves in syrup/juice
+* 2 tbsps dark brown sugar (or to taste)
+* 1 - 2 tsps cinnamon (or to taste)
 
 ## Method
 
