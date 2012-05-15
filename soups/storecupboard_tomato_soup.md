@@ -1,4 +1,4 @@
-# Store cupboard cream of tomato soup
+# Storecupboard cream of tomato soup
 
 This is **way** better than tinned tomato soup and takes literally minutes to 
 make.
