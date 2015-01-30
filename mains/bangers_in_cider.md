@@ -2,6 +2,8 @@
 
 Serves 2 adults, 2 smallish children - increase the number of sausages for bigger children/more grown ups.
 
+This is my interpretation of something that my Mum and Dad used to cook when I was little - I've since found Delia's [Bangers Braised in Cider](http://www.deliaonline.com/recipes/main-ingredient/meat/sausages/sausages-braised-in-cider-with-sauteed-apples.html), which must be where their recipe started.
+
 ## Ingredients
 
 * 6 sausages, pork and apple are nice, but any nice herby ones will do
